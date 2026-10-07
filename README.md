@@ -41,7 +41,7 @@ Three free days, then 4 990 KZT a month for Start or 9 990 KZT for Pro. Full pri
 
 ## Team
 
-Biik is built by a two-person family team in Astana, Kazakhstan, with no outside funding. Our first learner is already studying; public launch is 12 October 2026.
+Biik is built by a two-person family team in Astana, Kazakhstan, with no outside funding. Our first paying learner joined during the closed test; public launch is 12 October 2026.
 
 ## Contact
 
